@@ -15,14 +15,3 @@ https://github.com/ahsanaliSWE/mad-lab_tasks-20SW135/assets/93969884/e48f5b6e-13
 
 
 https://github.com/ahsanaliSWE/mad-lab_tasks-20SW135/assets/93969884/791c03a7-76a5-4905-8690-ad42145e49be
-
-
-
-
-
-
-
-
-
-https://github.com/ahsanaliSWE/mad-lab_tasks-20SW135/assets/93969884/bad32de1-b5fe-4f83-9fe2-9e420451db69
-
